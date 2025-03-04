@@ -1,2 +1,2 @@
 2023 캡스톤 디자인 (졸업작품) 실행파일&플레이영상
-https://drive.google.com/file/d/1qY0xY9V9OtxTG07ch80gM0r95uwB26Kr/view?usp=drive_link
+https://drive.google.com/drive/folders/1QgdrA-jKd9qVxP2FeXn-ExJAHJm371Sl?usp=sharing
